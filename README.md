@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning biomedical engineering
 - 💞️ I’m looking to collaborate on any project
 - 📫 How to reach me by massaging mi
-- 😄 Pronouns: hat
+- 😄 Pronouns: He/His
 - ⚡ Fun fact: love to sleep haha
 
 <!---
